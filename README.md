@@ -26,5 +26,5 @@ https://cdn.discordapp.com/attachments/934862397406064680/986064846950895636/unk
 
 I dont care if you make a FREE shit cheat but never claim its ud when you dev it and you know how pasted it is
 also dont try to blame it on the spoofer smh https://cdn.discordapp.com/attachments/934862397406064680/986064935660449793/unknown.png
-owner/dev is ofc a known paster and scammer ac#1337
+owner/dev is ofc a known paster and scammer NotSimcraftLOL#0088 amd ac#1337 
 also bro is trying to get members from releasing a free cheat then making it a p2c https://cdn.discordapp.com/attachments/934862397406064680/986069110590963722/unknown.png
